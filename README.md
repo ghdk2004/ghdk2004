@@ -5,4 +5,4 @@
 - 🎮 gosto de jogar videogame
 - 📈 analiso grafico 
 
- ![](https://tenor.com/pt-BR/view/scrooge-mcduck-money-gif-13447298)
+ ![](https://media1.tenor.com/m/D1OWoFNgBUgAAAAd/scrooge-mcduck-money.gif)
